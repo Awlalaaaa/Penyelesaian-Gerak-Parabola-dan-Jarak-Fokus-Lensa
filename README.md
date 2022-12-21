@@ -1,0 +1,1 @@
+# Penyelesaian-Gerak-Parabola-dan-Jarak-Fokus-Lensa
